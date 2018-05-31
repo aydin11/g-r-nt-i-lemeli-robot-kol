@@ -1,1 +1,0 @@
-# g-r-nt-i-lemeli-robot-kol
